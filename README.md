@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jackmessy
+- 👀 I’m interested in jackscript
+- 🌱 I’m currently learning jack
+- 💞️ I’m looking to collaborate on jackmessywelsh
+- 📫 How to reach me @brawlie
